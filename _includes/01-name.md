@@ -1,1 +1,1 @@
-#George Paul Avramescu, Portfolio.
+#George Paul Avramescu, Portfolio
